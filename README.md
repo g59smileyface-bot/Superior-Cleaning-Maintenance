@@ -1,2 +1,2 @@
 # Superior-Cleaning-Maintenance
-For Your Cleaning &amp;Maintenance Needs
+For Your Cleaning &amp; Maintenance Needs
